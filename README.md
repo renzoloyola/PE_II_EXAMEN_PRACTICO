@@ -1,2 +1,2 @@
 # PE_II_EXAMEN_PRACTICO
-EXAMEN UNIDAD 2 PLANEAMIENTO ESTRATÉGICO
+Examen Práctica Unidad II - PETI Renzo Fernando Loyola Vilca 22-10-25
